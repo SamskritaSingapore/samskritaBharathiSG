@@ -1,2 +1,2 @@
 # samskritaBharathiSG
-Link: https://mksowmya.github.io/samskritaBharathiSG/
+Link: https://samskritasingapore.github.io/samskritaBharathiSG/
